@@ -1,4 +1,4 @@
-- 👋 Hello, I’m @Priya Chakravorty
+- 👋 Hello, I’m Priya Chakravorty.
 - 👀 I’m enhancing my Social Media Planning skills.
 - 🌱 I’m currently working as a Digital Marketing Intern.
 - 📫 How to reach me 📩 priya@synchsoft.in
